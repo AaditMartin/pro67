@@ -1,0 +1,3 @@
+Harry Potter and the Deathly Hallows is a fantasy novel written by British author J. K. Rowling and the seventh and final novel of the Harry Potter series.
+It was released on 21 July 2007 in the United Kingdom by Bloomsbury Publishing, in the United States by Scholastic, and in Canada by Raincoast Books. 
+The novel chronicles the events directly following Harry Potter and the Half-Blood Prince and the final confrontation between the wizards Harry Potter and Lord Voldemort.
